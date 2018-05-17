@@ -5,6 +5,10 @@ Link ka Radionici I:
 
 https://www.youtube.com/watch?v=kAkkP7188gk
 
+Link ka Radionici II:
+
+https://www.youtube.com/watch?v=j_dXpxuRLdM
+
 Link ka upoutstvu o instalaciji PowerDesigner-a:
 
 https://www.youtube.com/watch?v=uiEqSSedNWQ
